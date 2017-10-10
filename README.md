@@ -1,1 +1,1 @@
-# Strategy-and-Risk-of-CPA
+![zl1](../../zl1.png)
